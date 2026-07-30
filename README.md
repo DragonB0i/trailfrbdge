@@ -1,4 +1,4 @@
 # trailfrbdge
-po ra bodiga
+po r a bodiga
 #Pull sharkkk!!
 trl 2!!!
