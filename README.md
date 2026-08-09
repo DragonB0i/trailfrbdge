@@ -1,7 +1,2 @@
 # trailfrbdge 
 f
-
-
-
-
-spaceee
