@@ -1,6 +1,6 @@
 # trailfrbdge
 
-ifi
+tiger kg ru hd XT hmm
 
 
 
