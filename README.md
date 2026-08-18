@@ -1,10 +1,6 @@
 # trailfrbdge
 
 
-sudbebxube
-eudbdheh
-
-
 
 
 
