@@ -1,7 +1,3 @@
 # trailfrbdge
 
-fhcjf off
-gvvhh
-
-
-
+j
